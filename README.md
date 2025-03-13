@@ -1,0 +1,1 @@
+# DaVinci-Resolve-Studio-Free-Pre-Activated
